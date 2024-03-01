@@ -2,7 +2,7 @@
 - 👀 I’m interested in mathmatical modeling
 - 🌱 I’m currently learning matlab
 - 💞️ I’m looking to collaborate on mathmatical modeling enthusiast
-- 📫 How to reach me no
+- 📫 How to reach me "do not reach me"
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
